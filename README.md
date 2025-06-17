@@ -20,3 +20,8 @@ My Repository to understand Life Better
 ![Life Changing](/assets/SocialMediaUsage.png)
 # Good Way
 ![New way to Start my Morning](/assets/NewHappyWay.png)
+
+# Priority
+-- Be with someone who Prioritizes you, no matter how busy they are, rather than giving excuses, "they find ways to be with you".
+
+-- Be with someone who believes in your dreams, goals and constantly pushes me to work harder. "Its better to be alone than with wrong partner".
