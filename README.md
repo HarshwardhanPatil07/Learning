@@ -25,3 +25,6 @@ My Repository to understand Life Better
 -- Be with someone who Prioritizes you, no matter how busy they are, rather than giving excuses, "they find ways to be with you".
 
 -- Be with someone who believes in your dreams, goals and constantly pushes me to work harder. "Its better to be alone than with wrong partner".
+
+---
+## If four things are followed having a great aim, acquiring knowledge, hardwork and perseverance - then anything can be achieved.
