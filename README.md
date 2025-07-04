@@ -28,4 +28,7 @@ My Repository to understand Life Better
 
 ---
 ## If four things are followed having a great aim, acquiring knowledge, hardwork and perseverance - then anything can be achieved.
-![APJ-Sir-Wings-of-Fire](/assets/APJ-Sir-Wings-of-Fire)
+
+![APJ-Sir-Wings-of-Fire](/assets/APJ-Sir-Wings-of-Fire.jpg)
+
+---
