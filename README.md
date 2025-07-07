@@ -32,3 +32,21 @@ My Repository to understand Life Better
 ![APJ-Sir-Wings-of-Fire](/assets/APJ-Sir-Wings-of-Fire.jpg)
 
 ---
+
+Happy Birthday Mahi☺️
+
+<table>
+<tr>
+<td><img src="assets/Mahi7.jpg" alt="MSD" width="300"></td>
+<td><img src="assets/Mahendra-Singh-Dhoni.png" alt="Mahendra Singh Dhoni" width="300"></td>
+</tr>
+</table>
+
+---
+- If Ira raining heavily you can't run away from it. 
+- You will get wet.
+- So either you look for some shade.
+-- Or tell yourself "I will get wet. But that dosen't mean I won't get dry again."
+
+- Life is like that.
+- Replace rain with problems and the approach remains the same.
