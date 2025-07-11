@@ -50,3 +50,21 @@ Happy Birthday Mahi☺️
 
 - Life is like that.
 - Replace rain with problems and the approach remains the same.
+---
+
+
+```bash
+# Lauren Aquilina – You Can Be King Again
+If you’re lost and alone
+Or you're sinking like a stone
+Carry on
+May your past be the sound
+Of your feet upon the ground
+Carry on
+
+And you don't have to be afraid
+You're not gonna lose your way
+And if you feel like you're alone in this world
+You don't have to be alone in this world
+You can be king again
+```
