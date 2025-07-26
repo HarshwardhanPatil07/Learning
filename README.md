@@ -68,3 +68,6 @@ And if you feel like you're alone in this world
 You don't have to be alone in this world
 You can be king again
 ```
+---
+
+- Charlie Chaplin's quote "Life is a tragedy when seen in close up, but a comedy in long-shot"
