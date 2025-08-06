@@ -71,3 +71,8 @@ You can be king again
 ---
 
 - Charlie Chaplin's quote "Life is a tragedy when seen in close up, but a comedy in long-shot"
+
+---
+
+
+# Often happens deep care and love for a person is seen as Limerence. That's the fact and relationships gets ruined.. 
