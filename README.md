@@ -76,3 +76,11 @@ You can be king again
 
 
 # Often happens deep care and love for a person is seen as Limerence. That's the fact and relationships gets ruined.. 
+---
+
+
+## Don't give control of your life in other person's hand.. never.. 
+## the exam or anything depends on luck the frame of mind of other person, is he ok or not, does he really check corretly don't know.. the person has 100's of candidates.. critical thinking of every student is different, may be you performed very good
+
+# know what is in hand what not and determine self esteem and self worth accordingly.
+---
